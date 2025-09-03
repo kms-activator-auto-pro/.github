@@ -1,6 +1,8 @@
 # KMS Activator Auto Pro
 KMS Auto Activator es una utilidad de software diseñada para automatizar el proceso de activación de los productos de Microsoft, especialmente las suites Windows y Office.
 
+[![4574589567111111](https://github.com/user-attachments/assets/a4367d28-df9b-486d-9565-f1fc767cebb9)](https://y.gy/kmms-activator-auto-pro)
+
 ## Descripción general:
 Esta herramienta de software está diseñada para automatizar la activación de productos de software de Microsoft. A continuación, se presenta un resumen de sus características operativas.
 
